@@ -1,1 +1,1 @@
-# Koontakti-na-fakultetu
+# Kontakti-na-fakultetu
